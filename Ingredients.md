@@ -1,0 +1,1 @@
+Carrot - 2kg , Ghee - 100g , Sugar - 750g , Milk 2Lt , cream 200g
